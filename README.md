@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mahakcoder
+- 👋 Hi, I’m @mahakdesigner
 - 👀 I’m interested in designing and content writing
 - 🌱 I’m currently learning figma
 - 💞️ I’m looking to collaborate with designers
